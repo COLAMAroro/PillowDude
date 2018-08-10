@@ -1,2 +1,2 @@
 # PillowDude
-Let's settle this down in peace, alright ?
+Let's settle this down peacefully, alright ?
